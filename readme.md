@@ -71,7 +71,7 @@
 
 ### Interested ?
 
-📫 Reach me on **jente@elewa.ke**
+📫 Reach me on **gibubett@gmail.com**
 
 <br />
 
